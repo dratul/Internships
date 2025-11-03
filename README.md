@@ -1,3 +1,3 @@
-# vocational_training
-Vocational Training Industrial training 
-##last date of submission in pdf 30/08/24
+# INdustrial Training/ Internships/ vocational training/ Summer Internships/ Mini Projects
+For laterst updates follow training and placement whatsapp channel
+##[click here](https://whatsapp.com/channel/0029VaEufoh77qVWyvuClS3C)
